@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Akashhhhhhhhhhh4636
+- 👋 Hi, I’m @Akashh
 - 👀 I’m interested in ...NETWORRKING
 - 🌱 I’m currently learning ...COMPUTER ENGG
 - 💞️ I’m looking to collaborate on ...
